@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+
 **lameira-ana/lameira-ana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -21,4 +21,4 @@ chama no zzapp
 she/her
 - ⚡ Fun fact: ...
 i broke my leg once bc i fell off the balcony when i was dacing to a whole new world from "alladin". (i was 8)
--->
+
