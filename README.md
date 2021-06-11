@@ -20,5 +20,5 @@ chama no zzapp
 - 😄 Pronouns: ...
 she/her
 - ⚡ Fun fact: ...
-i broke my leg once bc i fell off the balcony when i was dacing to a whole new world from "alladin". (i was 8)
+i broke my leg once bc i fell off the balcony while dacing to a whole new world from "alladin". (i was 8)
 
