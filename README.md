@@ -6,19 +6,19 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
-this
+isso
 - 🌱 I’m currently learning ...
-japanese !
+japones !
 - 👯 I’m looking to collaborate on ...
-iiidk
+nao sei
 - 🤔 I’m looking for help with ...
-i have no idea
+nao faço ideia!
 - 💬 Ask me about ...
-music !!!
+musica !!!
 - 📫 How to reach me: ...
 chama no zzapp
 - 😄 Pronouns: ...
-she/her
+ela/dela
 - ⚡ Fun fact: ...
-i broke my leg once bc i fell off the balcony when i was dacing to a whole new world from "alladin". (i was 8)
+uma vez qd tinha 8 anos qubrei a perna pq cai da sacada dançando "um mundo ideal " no alladin
 
