@@ -20,5 +20,9 @@ chama no zzapp
 - 😄 Pronouns: ...
 ela/dela
 - ⚡ Fun fact: ...
+<<<<<<< HEAD
 uma vez qd tinha 8 anos qubrei a perna pq cai da sacada dançando "um mundo ideal " no alladin
+=======
+i broke my leg once bc i fell off the balcony while dacing to a whole new world from "alladin". (i was 8)
+>>>>>>> de255ce350f2a1334b990213b2dc63db04065528
 
