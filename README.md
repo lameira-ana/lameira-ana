@@ -17,8 +17,9 @@
 
 #####  _**✎ desenho:**_
 ***
-_é algo que eu tenho feito muito ultimamente, ainda mais agora que tenho uma mesa digitalizadora ~~não tenho na vdd, mas eu roubo a do meu irmão kk~~
-um desenho meu ↓_
+###### _é algo que eu tenho feito muito ultimamente, ainda mais agora que tenho uma mesa digitalizadora_
+###### ~~não tenho na vdd, mas eu roubo a do meu irmão kk~~
+###### _um desenho meu ↓_
 ![alt text](https://user-images.githubusercontent.com/85706625/124632211-82558e00-de5a-11eb-8990-da476c835a3a.jpg)
 _[meu instagram de desenhos](https://www.instagram.com/darin_ne_/)_
 
@@ -31,8 +32,8 @@ _ouço de tudo. alguns dos meus artistas/bandas favoritos de agora:_
 * [Muse](https://www.youtube.com/watch?v=qhduQhDqtb4&ab_channel=Muse)
 * [Yoasobi](https://www.youtube.com/watch?v=Y4nEEZwckuU&ab_channel=Ayase%2FYOASOBI)
 
-_também sei tocar violão !! gosto muito de tocar fingerstyle
-um dos meus sonhos é aprender teoria musical algum dia_
+###### _também sei tocar violão !! gosto muito de tocar fingerstyle_
+###### _um dos meus sonhos é aprender teoria musical algum dia_
 
 ##### _**シ aprender outras línguas**_
 ***
@@ -43,9 +44,9 @@ idk if theres a 100% confirmed super certain method to test whether you're fluen
 summing it up: i started learning japanese this year, around march/april. its been a lot of fun. 頑張ります！ :)
 ##### _**📺 entretenimento no geral**_
 ***
-_Gosto de animes, como **Jojo's Bizarre Adventure** e **Haikyuu**_
-_Também gosto de séries, entre minhas favoritas: **Breaking Bad** e **Modern Family**_
-_Sobre jogos, gosto muito de **Sudoku** e **League of Legends**, mesmo não jogando muito._
+###### _Gosto de animes, como **Jojo's Bizarre Adventure** e **Haikyuu**_
+###### _Também gosto de séries, entre minhas favoritas: **Breaking Bad** e **Modern Family**_
+###### _Sobre jogos, gosto muito de **Sudoku** e **League of Legends**, mesmo não jogando muito._
 ***
 ![alt text](https://i1.wp.com/66.media.tumblr.com/12e7e63c271e05ecd708f8000ea83821/tumblr_pbtwaoIdBP1tixvyxo1_r1_500.gif)
 ***
