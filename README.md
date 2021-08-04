@@ -19,8 +19,6 @@
 ***
 ###### _é algo que eu tenho feito muito ultimamente, ainda mais agora que tenho uma mesa digitalizadora_
 ###### ~~não tenho na vdd, mas eu roubo a do meu irmão kk~~
-###### _um desenho meu ↓_
-![alt text](https://user-images.githubusercontent.com/85706625/124632211-82558e00-de5a-11eb-8990-da476c835a3a.jpg)
 _[meu instagram de desenhos](https://www.instagram.com/darin_ne_/)_
 
 
@@ -38,9 +36,9 @@ _ouço de tudo. alguns dos meus artistas/bandas favoritos de agora:_
 ##### _**シ aprender outras línguas**_
 ***
 * **inglês**
-idk if theres a 100% confirmed super certain method to test whether you're fluent in english or not but. im pretty sure i am lol since i was around 12. im one of those people who wasnt even trying to learn english but somehow did just by watching tv series and videos and stuff. yup. thats it ig!
+idk if theres a 100% confirmed super certain method to test whether you're fluent in english or not but. im pretty sure i am. since i was around 12. ig im one of those people who wasnt even trying to learn english but somehow did just by watching tv series and videos and stuff. yup. 
 * **japonês**
- even though id love to write a whole paragraph in japanese talking abt my journey learning it and bragging a lot and stuff, i very unfortunately am not able to do that yet, due to my... lack of knowledge. lmao
+ even though id love to write a whole paragraph in japanese talking abt my journey learning it and bragging a lot and stuff, i very unfortunately am not able to do that yet, due to my. lack of knowledge. lmao
 summing it up: i started learning japanese this year, around march/april. its been a lot of fun. 頑張ります！ :)
 ##### _**📺 entretenimento no geral**_
 ***
