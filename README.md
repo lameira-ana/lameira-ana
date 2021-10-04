@@ -3,7 +3,7 @@
 
 
 
-### _**♢ Nome: Ana Carolina Silva Lameira ♢**_
+### _**♤ Nome: Ana Carolina Silva Lameira ♤**_
 ### _**♢ Idade: 16 ♢**_ 
 ### _**♢ Colégio Técnico Industrial de Santa Maria (CTISM) ♢**_
 ### _**♢ Meus  principais interesses: ♢**_
