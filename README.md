@@ -32,10 +32,8 @@ _alguns dos meus artistas/bandas favoritos de agora:_
 ###### _um dos meus sonhos é aprender teoria musical algum dia_
 ***
 ##### _**シ línguas**_
-* **inglês**
-fluent in english !
-* **japonês**
-studying japanese since 2021. 頑張ります！ :)
+* **inglês** - fluent in english !
+* **japonês** - studying japanese since 2021. 頑張ります！ :)
 * ***
 ##### _**📺 entretenimento no geral**_
 
